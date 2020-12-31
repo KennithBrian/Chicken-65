@@ -1,0 +1,1 @@
+Imgredients are:- Chicken, Chilly powder, Ginger, Garlic, Salt, Corn-Flour, Lemon, Curry leaf. 
